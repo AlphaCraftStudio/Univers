@@ -2,19 +2,57 @@
 
 ## Les grandes dates
 
+Pour rester dans un repére facilement compréhensible de tous, nous commençons à l'année 0, qui représente la naissance du futur souverain et tyran des Hommes, ... 1er. On utilise donc ici le reférentiel des Hommes pour les dates car les terres lointaine de l'Aube ne sont pas encore connues à ce jour.
+
+An 0 : ... 1er, nait de son pére le souverain ... et de la reine ... .
+
 ## Les continents
+
+Le plateau des rois : La terre des hommes. C'est le continent ainsi que les îles avoisinantes qui appartiennent aux Hommes. Cette terre est constamment en proie aux conflits entres les différents clans. Aprés la chute du dernier rempart de la justice, la cité de ... , une énorme armada de bateaux peuplé d'Homme et de Femme décide de quitter le plateau en espérant trouver de meilleures terres pour tout reconstruire.
+
+La Terre de L'Aube : Le dénominatif utilisé par les hommes pour notifier la terre au dela du plateau des rois. Ce nom est attribué par les Hommes car c'est pour eux, lorsqu'il trouve enfin cette terre un endroit qui semble idéal pour s'établir.
+
+## Les lieux
+
+... : L'île qui couta aux hommes de milliers d'hommes qui furent emporter par un mal inconnu. Ce nom est celui donné par les humains, mais les autres habitants de la Terre de l'Aube l'appelle plus communément ...
 
 ## Les peuples
 
 ### Les Humains
 
-#### Les pirates
-
-##### Introduction
-
 #### Les oubliés
 
-##### Introduction
+- Introduction :
+
+Les barriques de Rhum s'ouvrir toute en même temps, alors que le guetteur en haut du trés haut mat criait sans cesse "Terre en vue !!! Terre en vue !!!!". Les exilés du plateau des rois avaient enfin trouvé une terre qui semblait propice à l'habitation. Encore quelques coups de rame et de fouet, et ils pourraient accosté. Le général ... posa le premier pieds à terre suivit de ces hommes en armes pour exploirer le terrain.
+
+
+[ ... ] (ici on peut faire une petit récit du général qui exploire et qui commande à avoir mal quelque part mais sans soucis peu en disant que c'est le voyage)
+
+
+Aprés un rapide tour sur la plage et dans la forêt avoisinante, le général revint en hurlant : "Venez bande de pleutres ! Une nouvelle terre nous attend, on va pas pouvoir faire ça tout seul !". Beaucoup des occupants des bateaux posérent pied à terre pour rejoindre le général, pendant que d'autres prétextaient restaient sur le bateau pour préparer le déchargement des provisions. Plusieurs heures passérent et des phénoménes de plus en plus étrange semblaient se manifestés sur les nouveaux habitants de l'île.
+
+
+[...] (la je laisse libre recours à ton imagination pour expliquer ce qu'il se passe)
+
+
+Les humains encore sur le navire commencérent à hurler tous ensemble "DEGAGEZ LES BATEAUX DES SABLES !!! ON REPART REGARDER LE GENERAL ! VITE MOUSAILLON !". Tous les humains s'affolérent et commencérent à tirer les bateaux en dehors des sables. Pendant qu'ils mettérent tout en oeuvre pour sortir de la situation, plusieurs matelots furent prirent à dépourvue par les ... et furent inféctés.
+
+"On n'a plus le temps d'attendre les autres, il est déjà trop tard ! Toutes voiles dehors on repart !" le matelot ... qui s'improvisa nouveau commandant de l'expédition... Aussitôt dit, aussi fait, les hommes craignant pour leur vie, ils ne réfléchirent pas et laissérent leurs congénères sur cette île qui appeleraient maintenant ... .
+
+#### Les pirates
+
+- Introduction :
+
+Les bateaux reprirent la mer aprés cette mésaventure qui fit perdre aux hommes des milliers d'hommes. "Que faisons nous maintenant capitaine ?" s'exclama un homme de l'équipage. Le nouveau capitaine improvisé ne voulait pas connaître le fiasco qui venaient de se produire une deuxième fois, et il donna des directives très précise sur les futurs prochaines rencontre avec des îles. "J'ordonne que tout bateau trouvant une nouvelle île fasse son tour en entier et que tout les guetteurs et matelots à son bord scrute attentivement cette derniére pour savoir si il n'y a aucun risque. Je prendrais pour ma part la décision finale.". Le nouveau capitaine semblait très sur de lui à ce nouveau poste. 
+
+Pendant des journées durant, les bateaux naviguére sur les eaux à la recherche d'île mais ne trouvérent que des petits îlots bien trop minuscules pour accueillir ce nouveau peuple.
+
+C'est alors qu'au 22ème jour, le guetteur apercevit au loin une île semblant pouvoir les accueillir. Les bateaux sous l'ordre du capitaine commencèrent à se diriger vers la terre en s'assurant que tout le monde avait bien suivi l'ordre. Alors que le bateau se trouvait à 200 métres, le guetteur crut apercevoir un bosquet bouger, les ordres étant clair, il commença sa phrase à destination de son capitaine. "Capitaine, on dirait que l'île n'est ..." il ne put finir sa pensée, un immense javelot de la taille d'un homme vint transpercer son torse et le fit tomber de son perchoir. Le capitaine et les matelots stupéfaits ordérent immédiatement aux bateaux de faire demi tour tendit que d'autres javelots étaient lancés dans leur direction. La panique étaient totalement, tant les matelots courraient dans tout les sens, et certains bateaux dans leurs manoeuvre de retournement percutèrent d'autre navire créant un incroyable cimetiére de bateaus proche de cette île inhospitaliére.
+Les bateaux flottant encore s'empressérent de récupérer les hommes à la mer et de faire demi tour.
+
+Aprés le tumulte de cette épisode sanglant, le capitaine demanda un témoignage de ce qui s'était passait, personne ne put donner une réponse. A l'exception de ce vieil ivrogne, au fond du bateau, qui passait sa journée sur son baril de rhum. Il hurlait vouloir voir le capitaine parce qu'il avait vu des êtres poilus et disposant d'une ossature et de muscles surdimensionnées. Alors que le capitaine voyait ces hommes affolaient par les ragôts de ce vieux fou, il décida d'envoyer ce dernier au fond de l'eau pour le faire taire une fois pour toute. Aussitôt ces paroles prononcés, 2 matelots attachérent des pierres aux pieds du vieillard qui continuer sans arrêt de dire qu'ils avaient vu des monstres. Il fut jeter à l'eau et le calme sur le bateau revint peu à peu bien que certains matelots continuaient d'alimenter cette rumeur. **(Ici, le vieillard peut etre recueillis par les hommes poissons, qui vont l'utiliser pour connaître les faiblesses.)**
+
     
 ### Le peuple de la mer
 
