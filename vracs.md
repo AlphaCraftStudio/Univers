@@ -16,6 +16,12 @@ La Terre de L'Aube : Le dénominatif utilisé par les hommes pour notifier la te
 
 ... : L'île qui couta aux hommes de milliers d'hommes qui furent emporter par un mal inconnu. Ce nom est celui donné par les humains, mais les autres habitants de la Terre de l'Aube l'appelle plus communément ...
 
+L'antre de la Lune : Le répére des pirates qui semble être un endroit connu de personne. C'est une petite île disposant de grande grotte souterraines qui méne sur la mer et qui permet aux pirates d'être en sécurité et caché des regards indiscrets.
+
+## Evenements
+
+La Nuit Pluvieuse : L'un des événements les plus sanglants pour les pirates. Alors que la pluie tombait abondamment, les ... ont profités de la météo pour aborder les pirates et leurs asséner une attaque foudroyante et des plus sanglantes.
+
 ## Les peuples
 
 ### Les Humains
@@ -27,13 +33,13 @@ La Terre de L'Aube : Le dénominatif utilisé par les hommes pour notifier la te
 Les barriques de Rhum s'ouvrir toute en même temps, alors que le guetteur en haut du trés haut mat criait sans cesse "Terre en vue !!! Terre en vue !!!!". Les exilés du plateau des rois avaient enfin trouvé une terre qui semblait propice à l'habitation. Encore quelques coups de rame et de fouet, et ils pourraient accosté. Le général ... posa le premier pieds à terre suivit de ces hommes en armes pour exploirer le terrain.
 
 
-[ ... ] (ici on peut faire une petit récit du général qui exploire et qui commande à avoir mal quelque part mais sans soucis peu en disant que c'est le voyage)
+**[ ... ] (ici on peut faire une petit récit du général qui exploire et qui commande à avoir mal quelque part mais sans soucis peu en disant que c'est le voyage)**
 
 
 Aprés un rapide tour sur la plage et dans la forêt avoisinante, le général revint en hurlant : "Venez bande de pleutres ! Une nouvelle terre nous attend, on va pas pouvoir faire ça tout seul !". Beaucoup des occupants des bateaux posérent pied à terre pour rejoindre le général, pendant que d'autres prétextaient restaient sur le bateau pour préparer le déchargement des provisions. Plusieurs heures passérent et des phénoménes de plus en plus étrange semblaient se manifestés sur les nouveaux habitants de l'île.
 
 
-[...] (la je laisse libre recours à ton imagination pour expliquer ce qu'il se passe)
+**[...] (la je laisse libre recours à ton imagination pour expliquer ce qu'il se passe)**
 
 
 Les humains encore sur le navire commencérent à hurler tous ensemble "DEGAGEZ LES BATEAUX DES SABLES !!! ON REPART REGARDER LE GENERAL ! VITE MOUSAILLON !". Tous les humains s'affolérent et commencérent à tirer les bateaux en dehors des sables. Pendant qu'ils mettérent tout en oeuvre pour sortir de la situation, plusieurs matelots furent prirent à dépourvue par les ... et furent inféctés.
@@ -52,6 +58,8 @@ C'est alors qu'au 22ème jour, le guetteur apercevit au loin une île semblant p
 Les bateaux flottant encore s'empressérent de récupérer les hommes à la mer et de faire demi tour.
 
 Aprés le tumulte de cette épisode sanglant, le capitaine demanda un témoignage de ce qui s'était passait, personne ne put donner une réponse. A l'exception de ce vieil ivrogne, au fond du bateau, qui passait sa journée sur son baril de rhum. Il hurlait vouloir voir le capitaine parce qu'il avait vu des êtres poilus et disposant d'une ossature et de muscles surdimensionnées. Alors que le capitaine voyait ces hommes affolaient par les ragôts de ce vieux fou, il décida d'envoyer ce dernier au fond de l'eau pour le faire taire une fois pour toute. Aussitôt ces paroles prononcés, 2 matelots attachérent des pierres aux pieds du vieillard qui continuer sans arrêt de dire qu'ils avaient vu des monstres. Il fut jeter à l'eau et le calme sur le bateau revint peu à peu bien que certains matelots continuaient d'alimenter cette rumeur. **(Ici, le vieillard peut etre recueillis par les hommes poissons, qui vont l'utiliser pour connaître les faiblesses.)**
+
+Encore des jours passérent sur le bateau, les hommes étaient de plus en plus sous pression, aucune île ne semblait prête à les accueillir et les réserves de nourriture et surtout de rhum commencaient à diminuer trés dangereusement. C'est ainsi qu'un évenement vint achever le moral des troupes. Pendant des jours durant, sans que personne ne se rendent compte de rien, des matelots disparaient et certains bateaux sombraient dans les eaux comme touché par un rocher alors que la mer étaient dégagés... Il fallut attendre la Nuit Pleuvieuse, un événement 
 
     
 ### Le peuple de la mer
