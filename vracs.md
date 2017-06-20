@@ -1,23 +1,35 @@
 # Idées en vrac pour l'univers d'AlphaCraftStudio
 
+## Les grandes dates
+
 ## Les continents
 
 ## Les peuples
 
 ### Les Humains
 
-    
+#### Les pirates
 
+##### Introduction
+
+#### Les oubliés
+
+##### Introduction
+    
 ### Le peuple de la mer
 
-    ### Le peuple du desert
+### Le peuple du desert
 
 ## Vracs
 
 faire une histoire avec un peuple esclave qui détient en réalité un vrai pouvoir et va ainsi se rebeller et créer une des races les plus puissantes du monde. 
 
-
 Idée de jeu : toWer défense ou alors on crée une compétition d'un sport ou alors un similaire de JO et on Fait ce jeu dessus.
+
+
+
+
+
 
 
 Continent peuple de différentes races :
