@@ -76,7 +76,7 @@ Les navires sous ces ordres partirent aussitôt à la recherche de cette île. C
 
 
 Alors que la majorité des hommes entreprenaient les différents tâches, les soldats décidérent sous la direction de leur chef improvisé, Jeff Lafart aussi appelé "l'Insubmersible" par les soldats pour ces capacités aux combats et sa force à tenir la ligne en voyant les ennemis s'écraser sur lui, de partir en exploration sur l'île pour voir si celle-ci ne présentait pas de danger. Aprés quelques heures de marche, les soldats tombérent sur un vieux temple en dehors de la grotte qu'ils avaient trouvé.
-Ce temple semblait en trés bon état et les murs étaient constitués de dessin représentant des ... . Au sommet du temple à l'extérieur, on pouvait voir ornée une lune brillante qui semblait dans une matiére précieuse.
+Ce temple semblait en trés bon état et les murs étaient constitués de dessin représentant des loups, et d'écriture dans une langue incompréhensible pour les hommes. Au sommet du temple à l'extérieur, on pouvait voir ornée une lune brillante qui semblait dans une matiére précieuse. A cet instant, l'avidité des hommes éclata, et plusieurs proposérent de décrocher le segment de lune du haut du temple. Jeff ne voyant aucun probléme à cela, il autorisa les hommes à procéder et il ordonna même au reste des soldats d'aider à décrocher la pierre qui semblait lourde. 25 minutes plus tard, la pierre se détacha du socle et les hommes exultérent à l'idée de cette trouvaille qu'ils allaient ramener au camp. 
     
 ### Le peuple de la mer
 
