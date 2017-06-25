@@ -89,6 +89,7 @@ Les soldats s'étonnérent de la situation ! "Nous n'avons rien entendu ... et �
 L'affaire semblait enfin s'élucider, on ne savait pas pourquoi ni comment, mais il me semble que les soldats avaient connus cette nuit la une crise les ayant transformer en loup...
 
 - La malédiction des loups garou : 
+
 Comme expliqué dans l'introduction, certains soldats et leurs descendance sont touchés par la malédiction du loup garou aprés avoir décrochés la pierre de lune emblématique au temple de la lune. Cette malédiction transforme les nuits de pleine lune les infectés en loup garous féroce ne répondant qu'au sang. Les pirates au fur et à mesure des années ont su eviter les catastrophes comme la "Nuit du Croc Sanglant" en enchainant les loups garous les nuits de pleine lune. Certains guerriers les plus fort d'esprit et les plus anciens ont même su dompter cette malédiction en la transformant en véritable avantage puisqu'ils peuvent se transformer quand bon leur semble et ou bon leur semble.
 
 Cependant cette malediction n'est pas controlé par tout les hommes, l'instinct bestial du loup garou est à double sens, plus personne ne peut arrêter ou commander un loup garou et son seul objectif et le meurtre. C'est ainsi que "la terrible lune" ou encore "le primptemps maudits" sont des événements aussi utilises pour les contes d'enfant et aussi pour la prévention comme quoi ces loup garous doivent s'enfermer eux meme pour la sécurité de leur peuple (on peut partir sur une idée ou un groupe de loup se seraient rebeller du peuple et vivrait en dehors, permettant d'utiliser leur pouvoir quand bon leur semble). Il faut de plus savoir que les loups garous se reconnaissent entre eux et que si les relations sont bonnes, ceux ci ne s'attaque pas.
@@ -98,13 +99,37 @@ La malediction n'atteint pas tout les humains, heureusement pour leurs ennemis, 
 bouché des ennemis. Le retour de baton fut barbare puisque les ... empalérent les têtes des jeunes loups sur des pieux et brulérent les différentes fourrures qu'il avait préalablement découpé, sur la plage, devant le bateau qui avait amener les jeunes soldats.
 
 - La religion :
+
 Pendant des siécles, les nouveaux pirates ont connu la religion polythéiste forcé sur le plateau des rois, avec le monarque ... ayant mis en place "La Sainte Parole", qui représente l'église dans toute sa puissance et l'ayant armée d'une force appelé "Les Paroliers". Des hommes lourdement armées d'armures de maille, et doté de grande hache étant tenu à 2 mains. Ils disposent du libre arbitre et peuvent tuer quiquonque ne respecte pas les dieux et la Saint Parole sans être condamné pour meurtre sur des citoyens. De ce fait, les pirates sont maintenant des atheis convaincus. Plusieurs raisons expliquent ce changement. Tout d'abord le fait d'être forcé alors que certains hommes n'étaient à la base pas du tout croyant. D'autres car ils sont certains qu'avec tout les évenements marquants qui les ont frappés ces temps-ci, aucun dieu si il existait ne laisserai ses fidéles croyants endosser de telles souffrances et finalement d'autres qui veulent s'adonner à la liberté de penser et ne plus être restreint par un emploi du temps ou ils doivent donner beaucoup trop de leur temps à des soi disant dieu. Il faut savoir que ces derniers prient encore de temps en temps, lorsque des évenements importants sont sur le point de se passer mais il ne consacre maintenant plus la grande partie de leur journée à dieu. 
 Il faut cependant savoir que les pirates sont encore libre de croire en tout dieu qu'ils veulent. Mais ceux-ci ne peuvent plus maintenant imposer leurs croyances à d'autres membre de la communauté.
 
  - La politique:
+ 
 La politique chez les pirates est trés archaïque, en effet les pirates n'obéissent qu'à leur humeur et le rhum ... et de temps en temps, exceptionnellement, ils suivent les ordres d'un chef qui la plupart du temps n'est elit que temporairement. En effet, apres la dictature qu'ils ont connu avec le roi ... , ils se sont promis de ne plus être à la merci d'un homme. On appelle ainsi capitaine, terme emprunté à la marine celui qui prend le rôle de chef Mais ce poste n'est mis au enchère que lorsque les heures sont graves ou que des décisions très importantes doivent être prises. Sinon, c'est souvent aux groupes qui parle et tape le plus fort qui prend les décisions, une belle bagarre ne peut mieux résoudre un probleme disent les pirates. Bien que ce mode de politique semble archaïque, il est viable tout simplement car les pirates ne sont pas disposé dans diverses villes, en effet l'antre de la lune, bien qu'immense et n'étant jamais remplis, ne forme qu'une seule et même ville ce qui rend la gouvernance et les décisions toutes centralises. Il faut cependant savoir que la politique sur les bateaux est totalement différente ! En effet, une flotte possède un amiral et chaque bateau dispose d'un général qui donne les ordres qui proviennent la plupart du temps de l'amiral. A l'inverse de l'antre, la hiérarchie est très respecté dans la piraterie sur mer, et si quelqu'un tente de s'opposer ou de réaliser une mutinerie, les conséquences sont directs et tout les mutins sont tues. L'élection des amiraux et des généraux est quelque peu chaotique par contre. Un conseil dans l'antre est forme la plupart du temps par les gros portefeuille et les anciens généraux à la retraite, et seul les plus courageux et expérimentés matelots ou homme sortant de l'école de piraterie après des années peuvent postuler aux postes. Apres une élection de 7 jours, ou les candidats passsent des épreuves technique et théorique, le jury donne son choix final et les nouveaux amiraux et généraux sont choisis. Par respect pour un amiral celui ci n'est remplace que lors de sa mort ou lorsque celui ci a commis une très grosse erreur lors d'une bataille ayant jouer en tres mal sur cette dernière. Le remplacement des généraux est plus aisé quand à lui. Si celui ci meurt, ou si son amiral en chef décide qu'il veut changer, alors la demande est accepté. Cependant, pour une raison d'organisation, les élections ne sont réalisés que lorsqu'ils y a au moins 20 tetes à élire. 
 
 - Le commerce :
+
+Le commerce est quelque chose d'essentiel pour les pirates. En effet, ces derniers vivent sur une ile et principalement sur les mers via l'énorme flotte dont ils disposent. De maniére naturelle, ces hommes étant les derniers arrivants de l'île et ayant été perçu comme des intrus, il n'a pas été facile pour eux de réaliser des accords commerciaux avec les autres civilisations. De plus, comme si leur situation n'était pas compliqué, les echanges commerciaux mis en place demande beaucoup de ressources humaines. En effet, ces derniers simulant le fait qu'il ne dispose pas de pied à terre. Ils doivent pour cela embarquer toutes les ressources dans leurs navires pour ensuite aller au point de rencontre pour procéder à l'échange. 
+Les pirates commercent principalement 4 choses qui forme leur économie et permettent en échange de pouvoir acheter les biens dont il ne dispose pas ou en quantité insuffisante. 
+
+Les exportations principales :
+
+La construction de bateau et la vente : 
+
+
+Le rhum : Que serais un pirate sans rhum ? Pas grande chose, mais ces fervents défenseurs de la boisson en produisent tellement qu'ils peuvent maintenant se permettre d'en vendre aux voisins et cela à prix fort puisque ces boissons est trés convoité et ils sont les seuls à savoir concocté et faire vieillir comme il faut le rhum. C'est une boisson qui est considéré comme luxueuse et les pirates aiment en jouer pour leur propre économie.
+
+
+
+Les importations principales : 
+
+Le sucre :
+
+Le bois : 
+
+Les métaux :
+
+Comme on peut le voir, les pirates importent énormément de bois et de nourriture alors que ce sont de trés bons bucherons et qu'ils ont replanté énormément d'arbres et de métaux sur l'ile de l'antre. Cependant, pour un soucis de clareté, il ne serait pas possible pour des hommes vivants sur la mer d'avoir des métaux et du bois facilement si ce n'est en s'arretant sur des îles désertes mais cela serait une perte de temps. Quant à la construction des navires, ces derniers ont eu l'intelligence de faire payer une prestation encore plus cher car ils prennent la peine de se déplacer chez les différentes civilisations pour construire directement sur place alors qu'en réalité, cela les arranges énormément.
 
 - Les armes :
 
