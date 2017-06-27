@@ -98,6 +98,9 @@ Cependant cette malediction n'est pas controlé par tout les hommes, l'instinct 
 La malediction n'atteint pas tout les humains, heureusement pour leurs ennemis, seulement les premiers hommes appelaient "les precurseurs" et leurs descendance, en sachant que chaque précurseur ne peut engendrer qu'un seul et unique enfant lycanthrope. Ce qui fait des loups garous une arme puissance mais précieuse qui ne doit pas être utilisé n'importe comment. En effet, bien que le loup garou soit un féroce guerrier pouvant emporter plusieurs centaines de vie à lui seul grâce à sa force herculéenne et sa vitesse foudroyante, il n'en reste pas moins un loup, et n'est ainsi pas invincible. C'est une erreur que commir les pirates en envoyant lors de leur premiére bataille un régiment de jeune homme loup attaquer un campement solidement garder des ... pensant que ceux ci ne ferait qu'une 
 bouché des ennemis. Le retour de baton fut barbare puisque les ... empalérent les têtes des jeunes loups sur des pieux et brulérent les différentes fourrures qu'il avait préalablement découpé, sur la plage, devant le bateau qui avait amener les jeunes soldats.
 
+- Apparence : 
+
+
 - La religion :
 
 Pendant des siécles, les nouveaux pirates ont connu la religion polythéiste forcé sur le plateau des rois, avec le monarque ... ayant mis en place "La Sainte Parole", qui représente l'église dans toute sa puissance et l'ayant armée d'une force appelé "Les Paroliers". Des hommes lourdement armées d'armures de maille, et doté de grande hache étant tenu à 2 mains. Ils disposent du libre arbitre et peuvent tuer quiquonque ne respecte pas les dieux et la Saint Parole sans être condamné pour meurtre sur des citoyens. De ce fait, les pirates sont maintenant des atheis convaincus. Plusieurs raisons expliquent ce changement. Tout d'abord le fait d'être forcé alors que certains hommes n'étaient à la base pas du tout croyant. D'autres car ils sont certains qu'avec tout les évenements marquants qui les ont frappés ces temps-ci, aucun dieu si il existait ne laisserai ses fidéles croyants endosser de telles souffrances et finalement d'autres qui veulent s'adonner à la liberté de penser et ne plus être restreint par un emploi du temps ou ils doivent donner beaucoup trop de leur temps à des soi disant dieu. Il faut savoir que ces derniers prient encore de temps en temps, lorsque des évenements importants sont sur le point de se passer mais il ne consacre maintenant plus la grande partie de leur journée à dieu. 
@@ -110,26 +113,34 @@ La politique chez les pirates est trés archaïque, en effet les pirates n'obéi
 - Le commerce :
 
 Le commerce est quelque chose d'essentiel pour les pirates. En effet, ces derniers vivent sur une ile et principalement sur les mers via l'énorme flotte dont ils disposent. De maniére naturelle, ces hommes étant les derniers arrivants de l'île et ayant été perçu comme des intrus, il n'a pas été facile pour eux de réaliser des accords commerciaux avec les autres civilisations. De plus, comme si leur situation n'était pas compliqué, les echanges commerciaux mis en place demande beaucoup de ressources humaines. En effet, ces derniers simulant le fait qu'il ne dispose pas de pied à terre. Ils doivent pour cela embarquer toutes les ressources dans leurs navires pour ensuite aller au point de rencontre pour procéder à l'échange. 
-Les pirates commercent principalement 4 choses qui forme leur économie et permettent en échange de pouvoir acheter les biens dont il ne dispose pas ou en quantité insuffisante. 
+Les pirates commercent principalement 3 choses qui forme leur économie et permettent en échange de pouvoir acheter les biens dont il ne dispose pas ou en quantité insuffisante. 
 
 Les exportations principales :
 
-La construction de bateau et la vente : 
+__La construction de bateau et la vente :__ Les pirates sont les maitres en la matiére et les plus grands navires qu'ils ont construit sont de véritable monstre des mers qui inspirent la crainte à n'importe quel adversaire tant ceux-ci sont hauts et larges. Il faut savoir que les bateaux sont avec le rhum la plus lucrative des ventes pour les pirates tant ceux-ci mettent un prix élevé pour la vente car ils sont les seuls à savoir construire des bateaux imposants pouvant rester sur les mers en pleine tempéte. Cependant, il ne faut pas se leurrer. Jamais les pirates ne construiront des bateaux aussi importants que les leurs tout simplement pour garder la supériorité des mers. 
+
+__Le rhum :__ Que serais un pirate sans rhum ? Pas grande chose, mais ces fervents défenseurs de la boisson en produisent tellement qu'ils peuvent maintenant se permettre d'en vendre aux voisins et cela à prix fort puisque ces boissons est trés convoité et ils sont les seuls à savoir concocté et faire vieillir comme il faut le rhum. C'est une boisson qui est considéré comme luxueuse et les pirates aiment en jouer pour leur propre économie.
 
 
-Le rhum : Que serais un pirate sans rhum ? Pas grande chose, mais ces fervents défenseurs de la boisson en produisent tellement qu'ils peuvent maintenant se permettre d'en vendre aux voisins et cela à prix fort puisque ces boissons est trés convoité et ils sont les seuls à savoir concocté et faire vieillir comme il faut le rhum. C'est une boisson qui est considéré comme luxueuse et les pirates aiment en jouer pour leur propre économie.
+__Le poisson :__ Finalement, la derniére grande source de revenu, le poisson. Les pirates passent leur journée pendant qu'ils naviguent et qu'ils ne sont pas en guerre à pécher pour nourrir leur peuple. En réalité, ils existent des bêtes sur l'antre de la lune qui permettent d'avoir de la viande et quelques plantations mais pas en quantité suffisante pour ce nourrir exclusivement de ça. Ainsi, les pirates mangent beaucoup de poissons et vendent aussi beaucoup de poissons car ce sont les seuls à savoir aussi bien en pêcher
 
 
 
 Les importations principales : 
 
-Le sucre :
+__Le sucre :__ Le sucre est la seule ressource que les pirates ont réellement besoin obligatoirement car ils n'en dispose pas sur l'île et personne ne veut leur céder des pieds de canne à sucre car les exportateurs se rendent compte que la vente de canne à sucre avec les pirates est quelque chose de trés trés rentable. Ainsi, ce sont des tonnes toutes les années qui sont envoyés aux pirates. Ces derniers grâce à leurs connaissances centenaires distillent le sucre pour créer le précieux rhum.
 
-Le bois : 
+__Les métaux :__ Bien que l'île de la lune soit rempli de caverne riche en métaux et minéraux, les pirates n'ont d'autre choix que d'importer beaucoup de métaux pour ne pas mettre la puce à l'oreille quant à un pied à terre pour les autres civilisations. De plus, cela leur permet de secrétement exploiter les minéraux sur l'île et de créer des défenses incroyables et des armes trés impressionnantes pour les défenseurs de l'antre. Les métaux acheté par les pirates sont les plus basiques c'est à dire le cuivre et le fer. Cependant, sur l'île il existe un métaux qui ne semble exister nul part ailleurs que les pirates ont appelés "Pierre de Lune". Cette pierre étrange semble allier une résistance à tout épreuve et une légéreté impressionnantes.
 
-Les métaux :
+__Le bois :__ Tout comme les métaux, les pirates sont obligés d'acheter de trés grande quantité de bois pour le commerce de bateau et pour leur usage personnel. En effet ici, l'utilisation de l'achat massif de moins est moins contraignant car les pirates ont véritablement besoin de beaucoup plus de bois que ce qu'ils pourraient produire grâce à l'île. Pour cela, ils ont décidé d'acheter d'énorme quantité de bois pour utiliser dans les bateaux qu'ils construisent et vendent, et le reste pour les manches d'arme, les piéges sur l'île etc... Et il détienne quant à eux, sur l'île de la lune du bois de grande qualité qu'il laisse vieillir trés longtemps pour obtenir du bois trés dur pour construire leurs navires grandioses.
+
 
 Comme on peut le voir, les pirates importent énormément de bois et de nourriture alors que ce sont de trés bons bucherons et qu'ils ont replanté énormément d'arbres et de métaux sur l'ile de l'antre. Cependant, pour un soucis de clareté, il ne serait pas possible pour des hommes vivants sur la mer d'avoir des métaux et du bois facilement si ce n'est en s'arretant sur des îles désertes mais cela serait une perte de temps. Quant à la construction des navires, ces derniers ont eu l'intelligence de faire payer une prestation encore plus cher car ils prennent la peine de se déplacer chez les différentes civilisations pour construire directement sur place alors qu'en réalité, cela les arranges énormément.
+
+- La monnaie : 
+
+Les pirates savent ce qu'ils veulent, et ce qu'ils veulent, c'est de l'or. C'est la monnaie de prédilection qu'ils demandent la plupart du temps durant les ventes. L'avidité des hommes semblent les pousser à demander de l'or comme monnaie d'échange alors que les autres civilisations semblent s'en débarrasser sans aucun probléme. Cependant, certaines civilisation d'exploite pas de mine d'or et dans ce cas, les pirates s'arrangent avec ces dernies pour trouver un arrangement sur la monnaie d'échange comme des animaux, du sucre, des métaux ou tout autre chose qui pourrait plaire aux pirates.
+Les pirates au sein de l'antre de la lune utilise quant à eux exclusivement l'or et n'ont pas recours à d'autre sorte de troc. L'or c'est la vie disent les pirates ! Ainsi, au fur et à mesure que les pirates vendent, ils enrichissent leur économie et l'antre de la lune est en réalité une ville trés riche ou beaucoup d'or transiste toute la journée au gré des marchés.
 
 - Les armes :
 
@@ -183,6 +194,7 @@ A l'heure des écrits, l'antre n'ayant pas encore été découvert, jamais la st
 Cette dernière se trouvant dans une grotte enclave, et n'ayant pas d'entrée depuis l'île à par une confessionnel par les pirates et cache de tous, la seule possibilité d'attaque de la ville est par la mer, les pirates ont ainsi miser tout leur système de Défense sur l'entrée de la grotte et les rue avoisinantes le port si jamais le débarquement était réussie. 
 Tout d'abord on trouve des milliers de petite meurtrieres creuse dans la roche et ayant une sortie sur la mer et l'entrée de la grotte, c'est ici que repose la principale stratégie des pirates puisque ces derniers vont pouvoir harceler de longue Minutes les ennemis qui ne pourront pas riposter. On trouve ensuite au sommet de la grotte un dispositif tres ingénieux qui retient d'énorme rocher, une simple pression sur ce fil permet de faire tomber les rochers pouvant emporter plusieurs bateaux et bloquer une parti de l'accès aux navires. Le désavantage et que le réarmement de ce dispositif est très long. Finalement, il dispose d'un dispotif de
 
+Relation diplomatique : 
 
 ### Le peuple de la mer
 
