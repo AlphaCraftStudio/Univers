@@ -142,9 +142,15 @@ Comme on peut le voir, les pirates importent énormément de bois et de nourritu
 Les pirates savent ce qu'ils veulent, et ce qu'ils veulent, c'est de l'or. C'est la monnaie de prédilection qu'ils demandent la plupart du temps durant les ventes. L'avidité des hommes semblent les pousser à demander de l'or comme monnaie d'échange alors que les autres civilisations semblent s'en débarrasser sans aucun probléme. Cependant, certaines civilisation d'exploite pas de mine d'or et dans ce cas, les pirates s'arrangent avec ces dernies pour trouver un arrangement sur la monnaie d'échange comme des animaux, du sucre, des métaux ou tout autre chose qui pourrait plaire aux pirates.
 Les pirates au sein de l'antre de la lune utilise quant à eux exclusivement l'or et n'ont pas recours à d'autre sorte de troc. L'or c'est la vie disent les pirates ! Ainsi, au fur et à mesure que les pirates vendent, ils enrichissent leur économie et l'antre de la lune est en réalité une ville trés riche ou beaucoup d'or transiste toute la journée au gré des marchés.
 
+- Les armures :
+
+Il ne faut pas se mentir, les pirates ne sont pas du tout connu pour leur savoir faire en matiére d'armure. La majorité des régiments de mélée porte des armures de maille plus ou moins bien faconné, et les archés de premier ordre porte des vetements de tissu ou parfois de cuir. Beaucoup de point explique cela. Tout d'abord, les pirates ne veulent pas s'emcombrer avec de lourde armure sur les bateaux, cela viendrait complétement dénaturé les pirates et surtout détruire leur si grande force sur les mers. Les hommes ont besoin d'être les plus rapide possibles et les plus libres dans leur mouvement pour opérer à de nombreux changement de cap pour prendre à contrepied les ennemis sur les mers. De plus, l'abordage est un moment crucial pour les pirates et ils ne peuvent pas se permettre d'être alourdi pendant la phase de surprise. Surtout que passer d'un bateau à un autre via une corde par exemple est impossible avec une lourde armure de plaque. Toutes ces raisons poussent les pirates à combattre avec des armures n'offrant pas spécialement une grande protection mais un bon compromis entre résistance et légéreté. 
+Il ne porte que trés rarement des casques encore une fois pour une raison de déplacement et de vision. Il est par contre biensur impensable que les généraux et amiraux ne soient pas coiffé du fameux chapeau de pirate tant connu dans les légendes. De plus, les ..., archés les plus reconnus porte en permanence une cape à capuche et un foulard ne laissant apparaitre que les yeux. Cela pour une raison trés simple, même au sein des pirates, personne ne connait les membres des ... .
+Le reste des équipements tels que les gants, les bottes et autres accessoires sont un peu répartis de maniére aléatoire. Lorsqu'un pirates trouvent un objet, il peut se l'approprier si il ne semble appartenir à personne et le porter.
+
 - Les armes :
 
-- Les armures :
+Les armes sont une autre histoire que les armures pour les pirates. En effet, là ou l'armure joue un rôle secondaire pour les pirates car ils trouvent que 
 
 - Les objets précieux :
 
